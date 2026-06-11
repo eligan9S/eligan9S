@@ -8,4 +8,4 @@
 ---
 
 ### 🌟 Fun Fact
-I’ve always loved games, anime, and storytelling — and I’m hoping to one day combine those passions with tech!
+I’ve always loved games, anime, and storytelling, and I’m hoping to one day combine those passions with tech!
